@@ -1,0 +1,1 @@
+The hare and the tortoise had a race. The hare quicly had a lead and began to be cocky. He mocked the turtle by sitting next to a tree.
